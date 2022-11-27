@@ -1,3 +1,3 @@
 # gitShare is op
 
--My Name is Chandan Gope love serin.
+-My Name is Chandan Gope from dit university.
